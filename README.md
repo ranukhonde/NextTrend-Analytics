@@ -1,0 +1,1 @@
+# NextTrend-Analytics
